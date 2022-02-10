@@ -1,4 +1,7 @@
 # English 250 Documents
+## 2/10 Peer Review Check-in
+[Section 41 Check-in Sheet](https://docs.google.com/spreadsheets/d/1KsSTehisaN_yBLrUfyff19r2a1EVW10cniixz29uxBA/edit?usp=sharing)
+[Section 42 Check-in Sheet](https://docs.google.com/spreadsheets/d/1BaNEssPvV0DPb8C6tfZ7wH3efkv-R0Gx7UJS_uRmWLQ/edit?usp=sharing)
 ## "They say I Say" exercise 
 ### Section 41
 [Group 1 Google Doc](https://docs.google.com/document/d/1yoOvsF0tqeerWqSfSmUFBKy11iu6TA77PcGjG7reMkA/edit?usp=sharing)  
