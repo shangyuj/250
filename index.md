@@ -1,4 +1,19 @@
 # English 250 Documents
+## Feb. 17 Analyze a TED Talk  
+### Section 41  
+[Group 1 Google Doc](https://docs.google.com/document/d/1qYI5lynSsi7NWc8DZyWc9oNRpxi4AdQeCtcNjIdXkAM/edit?usp=sharing)  
+[Group 2 Google Doc](https://docs.google.com/document/d/1-t9oM7TU5hIAtXe-JntRM7bUg2VGe95dOKrfnGyopVE/edit?usp=sharing)  
+[Group 3 Google Doc](https://docs.google.com/document/d/1rqXhOcgwwknyExrH_aHK2Cp1USNVWooVKztk8pkRef4/edit?usp=sharing)  
+[Group 4 Google Doc](https://docs.google.com/document/d/1rPSiXFphv26WWXUWE80ICrvyb4Rg9i-v_VRkb7DiVxc/edit?usp=sharing)  
+[Group 5 Google Doc](https://docs.google.com/document/d/1n-SfrmF2mpijl7J-p4A0LvI5uQcr2CU9gfwJJSnBDcE/edit?usp=sharing)  
+[Group 6 Google Doc](https://docs.google.com/document/d/1PWSv0-Pn2CJCvIU2pX9sKqrBeTo4ibJDZqH2WjKhzcE/edit?usp=sharing)  
+### Section 42
+[Group 1 Google Doc](https://docs.google.com/document/d/1btrzuoK5dKz8_E-Us_A6sf-l08XUAYvoss21RI6L8WM/edit?usp=sharing)  
+[Group 2 Google Doc](https://docs.google.com/document/d/19mUjDknT7JiBfe_hFAx5fE9MlgHgowHVAws3uh8bBSY/edit?usp=sharing)  
+[Group 3 Google Doc](https://docs.google.com/document/d/1ca1F_HarTzT1Wsg6Un6tJ_hxtCAsZkv-9LREiTSUXwI/edit?usp=sharing)  
+[Group 4 Google Doc](https://docs.google.com/document/d/1M-hyHepNhdtSpPxSqB5lRSWG2V67R5OhgR5813IIMuk/edit?usp=sharing)  
+[Group 5 Google Doc](https://docs.google.com/document/d/1uWtRuTKaQNWLgjLiAAe8AT2yti-5kIwXJjsf5oBnO0A/edit?usp=sharing)  
+[Group 6 Google Doc](https://docs.google.com/document/d/1YX3LFRyTIoumYZ0CatQFtlMXIrvUQcaez-SZwlyKW1Q/edit?usp=sharing)  
 ## Feb. 10 Peer Review Check-in
 [Section 41 Check-in Sheet](https://docs.google.com/spreadsheets/d/1KsSTehisaN_yBLrUfyff19r2a1EVW10cniixz29uxBA/edit?usp=sharing)  
 [Section 42 Check-in Sheet](https://docs.google.com/spreadsheets/d/1BaNEssPvV0DPb8C6tfZ7wH3efkv-R0Gx7UJS_uRmWLQ/edit?usp=sharing)
