@@ -4,7 +4,8 @@
 - Original study: [Smartphone addiction is increasing across the world: A meta-analysis of 24 countries](https://www.sciencedirect.com/science/article/pii/S0747563221004611)  
   
 **Compare the two articles. Discuss with your peers what rhetorical strategies are used in the Daily Mail article to report the original study.**
-
+  
+  
 ## Feb. 17 Analyze a TED Talk  
 ### Section 41  
 [Group 1 Google Doc](https://docs.google.com/document/d/1qYI5lynSsi7NWc8DZyWc9oNRpxi4AdQeCtcNjIdXkAM/edit?usp=sharing)  
