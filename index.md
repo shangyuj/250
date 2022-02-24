@@ -1,4 +1,11 @@
 # English 250 Documents
+## Feb. 24 Examining a Rhetorical Analysis
+### Section 41
+Step 1: Read the rhetorical analysis ([Click here](https://docs.google.com/document/d/1EnlyUzKnL1QXuH4LuuIxr_TC_1AeGQzKo1c-nsIrjwE/edit?usp=sharing))  
+Step 2: Analyze the rhetorical analysis ([Click here](https://docs.google.com/document/d/1T7b7ZJQ_Hvqt9-fb1MWW5S5nK0rWPp08_1ltvHTIXwI/edit?usp=sharing))  
+### Section 42
+Step 1: Read the rhetorical analysis ([Click here](https://docs.google.com/document/d/1EnlyUzKnL1QXuH4LuuIxr_TC_1AeGQzKo1c-nsIrjwE/edit?usp=sharing))  
+Step 2: Analyze the rhetorical analysis ([Click here](https://docs.google.com/document/d/1AievXr-o9kRyeAeolE1eZtj8RImqIJxQFR---mQCPSU/edit?usp=sharing))  
 ## Feb. 22 Compare a newspaper article to its original source
 - Article on Daily Mail: [The countries with the highest rates of SMARTPHONE ADDICTION revealed - with China, Saudi Arabia and Malaysia topping the list](https://www.dailymail.co.uk/sciencetech/article-10498963/The-countries-highest-rates-SMARTPHONE-ADDICTION-revealed.html) *(The website will ask you for notification permission. Do not click "allow" if you don't intend to.)*  
 - Original study: [Smartphone addiction is increasing across the world: A meta-analysis of 24 countries](https://www.sciencedirect.com/science/article/pii/S0747563221004611)  
