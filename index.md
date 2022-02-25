@@ -10,7 +10,7 @@ Step 2: Analyze the rhetorical analysis ([Click here](https://docs.google.com/do
 - Article on Daily Mail: [The countries with the highest rates of SMARTPHONE ADDICTION revealed - with China, Saudi Arabia and Malaysia topping the list](https://www.dailymail.co.uk/sciencetech/article-10498963/The-countries-highest-rates-SMARTPHONE-ADDICTION-revealed.html) *(The website will ask you for notification permission. Do not click "allow" if you don't intend to.)*  
 - Original study: [Smartphone addiction is increasing across the world: A meta-analysis of 24 countries](https://www.sciencedirect.com/science/article/pii/S0747563221004611)  
   
-**Compare the two articles. Discuss with your peers what rhetorical strategies are used in the Daily Mail article to report the original study and what effects can they cause.**
+**Compare the two articles. Discuss with your peers what rhetorical strategies are used in the Daily Mail article to report the original study and what effects they can cause.**
   
   
 ## Feb. 17 Analyze a TED Talk  
