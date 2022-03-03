@@ -1,4 +1,7 @@
 # English 250 Documents
+## March 3 Peer Review Check-in
+[Section 41 Check-in Sheet](https://docs.google.com/spreadsheets/d/1kBKyIt73toQFpUjIdySjTvfN3HwDB-HcCS3dGIh43yw/edit?usp=drivesdk)  
+[Section 42 Check-in Sheet](https://docs.google.com/spreadsheets/d/1lw5J6OPxNnJ8qrSnMIw6MO5xt9Bc9IBsL2eQV0ovjPA/edit?usp=drivesdk)
 ## Feb. 24 Examining a Rhetorical Analysis
 ### Section 41
 Step 1: Read the rhetorical analysis ([Click here](https://docs.google.com/document/d/1EnlyUzKnL1QXuH4LuuIxr_TC_1AeGQzKo1c-nsIrjwE/edit?usp=sharing))  
