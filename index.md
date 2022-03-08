@@ -1,19 +1,19 @@
 # English 250 Documents
 ## March 8 Multimodal Design: Genre Analysis
 ### Section 41  
-[Group 1 Google Doc](https://docs.google.com/document/d/138Ak2ewXdeTCo9-FETxlpX2ojuIO4degnVUISGndwes/edit?usp=sharing)(Video)  
-[Group 2 Google Doc](https://docs.google.com/document/d/1_Am7Rqu-kB39kMEOgAhG5AnaOjyGbsJ-7CEgK5FNuc0/edit?usp=sharing)(Video)  
-[Group 3 Google Doc](https://docs.google.com/document/d/1U46mo3EgNa2in9HinjSYx6zqWak3JHHIFY8DKPvkCqU/edit?usp=sharing)(Video)  
-[Group 4 Google Doc](https://docs.google.com/document/d/1X6HlnFohJb-_gtZunRMoEluPEYNAXh8lupaNd6PKSyg/edit?usp=sharing)(Infographic)  
-[Group 5 Google Doc](https://docs.google.com/document/d/1dquD6bz-Idwh-eDoTQQB4Kr7AnSzZv_pKMrHCICox78/edit?usp=sharing)(Infographic)  
-[Group 6 Google Doc](https://docs.google.com/document/d/1HyQDYfucwdWAxInjrATKEd6MOdEbevyj3fElN8WQ5wQ/edit?usp=sharing)(Infographic)  
+[Group 1 Google Doc](https://docs.google.com/document/d/138Ak2ewXdeTCo9-FETxlpX2ojuIO4degnVUISGndwes/edit?usp=sharing) (Video)  
+[Group 2 Google Doc](https://docs.google.com/document/d/1_Am7Rqu-kB39kMEOgAhG5AnaOjyGbsJ-7CEgK5FNuc0/edit?usp=sharing) (Video)  
+[Group 3 Google Doc](https://docs.google.com/document/d/1U46mo3EgNa2in9HinjSYx6zqWak3JHHIFY8DKPvkCqU/edit?usp=sharing) (Video)  
+[Group 4 Google Doc](https://docs.google.com/document/d/1X6HlnFohJb-_gtZunRMoEluPEYNAXh8lupaNd6PKSyg/edit?usp=sharing) (Infographic)  
+[Group 5 Google Doc](https://docs.google.com/document/d/1dquD6bz-Idwh-eDoTQQB4Kr7AnSzZv_pKMrHCICox78/edit?usp=sharing) (Infographic)  
+[Group 6 Google Doc](https://docs.google.com/document/d/1HyQDYfucwdWAxInjrATKEd6MOdEbevyj3fElN8WQ5wQ/edit?usp=sharing) (Infographic)  
 ### Section 42
-[Group 1 Google Doc](https://docs.google.com/document/d/19cGjbn4ZgclAyKQKT3U2zgSR3VzhZ_HWehmpqKvAYDk/edit?usp=sharing)(Video)  
-[Group 2 Google Doc](https://docs.google.com/document/d/1BWPPOL8ETjZcvzUegla2m19gW-tOIoZ_z7W9D4JFBMA/edit?usp=sharing)(Video)  
-[Group 3 Google Doc](https://docs.google.com/document/d/1QDnDGTAcH-9-eFatbkWwtfZR32oj-arB7LB4teHiWCE/edit?usp=sharing)(Video)  
-[Group 4 Google Doc](https://docs.google.com/document/d/1CFj59ziAuGjAgm4gK0ViStPhjByPCokX5Xk5McbNiTA/edit?usp=sharing)(Infographic)  
-[Group 5 Google Doc](https://docs.google.com/document/d/1hdlXsV6YR8mHeg6Cmb1O2H7IfYdHhp9dOQXzdWJodGo/edit?usp=sharing)(Infographic)  
-[Group 6 Google Doc](https://docs.google.com/document/d/16O8azObpnCNQhs8xSjrauOwwjV8584NgYNP5HplSuRA/edit?usp=sharing)(Infographic)  
+[Group 1 Google Doc](https://docs.google.com/document/d/19cGjbn4ZgclAyKQKT3U2zgSR3VzhZ_HWehmpqKvAYDk/edit?usp=sharing) (Video)  
+[Group 2 Google Doc](https://docs.google.com/document/d/1BWPPOL8ETjZcvzUegla2m19gW-tOIoZ_z7W9D4JFBMA/edit?usp=sharing) (Video)  
+[Group 3 Google Doc](https://docs.google.com/document/d/1QDnDGTAcH-9-eFatbkWwtfZR32oj-arB7LB4teHiWCE/edit?usp=sharing) (Video)  
+[Group 4 Google Doc](https://docs.google.com/document/d/1CFj59ziAuGjAgm4gK0ViStPhjByPCokX5Xk5McbNiTA/edit?usp=sharing) (Infographic)  
+[Group 5 Google Doc](https://docs.google.com/document/d/1hdlXsV6YR8mHeg6Cmb1O2H7IfYdHhp9dOQXzdWJodGo/edit?usp=sharing) (Infographic)  
+[Group 6 Google Doc](https://docs.google.com/document/d/16O8azObpnCNQhs8xSjrauOwwjV8584NgYNP5HplSuRA/edit?usp=sharing) (Infographic)  
 ## March 3 Peer Review Check-in
 [Section 41 Check-in Sheet](https://docs.google.com/spreadsheets/d/1kBKyIt73toQFpUjIdySjTvfN3HwDB-HcCS3dGIh43yw/edit?usp=drivesdk)  
 [Section 42 Check-in Sheet](https://docs.google.com/spreadsheets/d/1lw5J6OPxNnJ8qrSnMIw6MO5xt9Bc9IBsL2eQV0ovjPA/edit?usp=drivesdk)
