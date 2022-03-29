@@ -1,5 +1,3 @@
-[Infographics](https://docs.google.com/document/d/1RGlon6HscQSsDf8Vt1XKsqKK8BLQ8LU2ZqLoaJTc238/edit?usp=sharing)
-
 ## Multimodal Presentation Peer-Review Forms (Tuesday)
 [Section 41](https://docs.google.com/document/d/1lwDhV9cj6XKBZTjZKWX6uNhpP-aymfe4Zznb1fP8wWI/edit?usp=sharing)  
 [Section 42](https://docs.google.com/document/d/1VQyqzEQauOSYSorJwRTh70kQ-aHo5wiMvTdJ4_pL5nU/edit?usp=sharing)
