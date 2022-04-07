@@ -1,5 +1,6 @@
 # English 250
 ## April 7: Evaluating Sources
+### Activity 1
 #### Compare the following two sources. Which do you think is a more reliable source?
 **American Academy of Pediatrics** [(Link)](https://www.aap.org/) vs. **American College of Pediatricians** [(Link)](https://acpeds.org/)  
 - Compare their names, logos, the design of their websites, the content on their websites.  
@@ -7,6 +8,7 @@
 
 Which method above gives you the most straightforward, comprehensive understanding of these sources?
   
+### Activity 2
 #### In groups, find at least **two sources** that you could use for a paper on one of the following topics:  
 - The effects of veganism on the environment  
 - Pros/cons of abolishing college tuition fees  
