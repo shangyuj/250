@@ -21,6 +21,12 @@ Which method above gives you the most straightforward, comprehensive understandi
 #### 3. Evaluate Author James Clear's phrasing of a claim
 A claim made in James Clear's blog: [Click here](https://jamesclear.com/habits#:~:text=According%20to%20researchers%20at%20Duke%20University%2C%20habits%20account%20for%20about%2040%20percent%20of%20our%20behaviors%20on%20any%20given%20day.%C2%A0) (highlighted sentence)  
 The original claim in the research paper: [Click here](https://drive.google.com/file/d/1gjJM0-7g2VHLGKrsNwGU53dFXbisX4J2/view?usp=sharing) (highlighted sentence)  
+  
+### Evaluating Research Methods 
+#### 4. Read the research methods of this study published in *Science*. How would you evaluate the findings of the study after learning their research methods?
+[Cohn, Alain, et al. “Civic Honesty around the Globe.” *Science*, vol. 365, no. 6448, July 2019, pp. 70–73.](https://www.science.org/doi/epdf/10.1126/science.aau8712)  
+Research Methods start from the third column on the first page "We visited 355 cities in 40 countries and turnedin a total of 17,303 wallets..." and ends on the first column of the second page "...can be found in the supple-mentary materials."  
+
 ## Multimodal Presentation Peer-Review Forms (Thursday)
 [Section 41](https://docs.google.com/document/d/1ghurnLxXnvUpRcPvUf820ChzGAc6dEuM0ibQKtM4Hqo/edit?usp=sharing)  
 [Section 42](https://docs.google.com/document/d/19zJxY2ttFheB7iqckbtGSpYYYGZ049tjPKXZy4KzKzg/edit?usp=sharing)
