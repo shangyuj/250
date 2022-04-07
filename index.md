@@ -25,6 +25,7 @@ The original claim in the research paper: [Click here](https://drive.google.com/
 ### Evaluating Research Methods 
 #### 4. Read the research methods of this study published on *Science*. How would you evaluate the findings of the study after knowing how the study was conducted?
 [Cohn, Alain, et al. “Civic Honesty around the Globe.” *Science*, vol. 365, no. 6448, July 2019, pp. 70–73.](https://www.science.org/doi/epdf/10.1126/science.aau8712)  
+  
 (Research Methods start from **the third column on the first page** "We visited 355 cities in 40 countries and turnedin a total of 17,303 wallets..." and end on **the first column of the second page** "...can be found in the supple-mentary materials.")  
 
 ## Multimodal Presentation Peer-Review Forms (Thursday)
