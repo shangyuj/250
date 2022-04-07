@@ -1,4 +1,9 @@
-# English 250
+## April 7 Evaluating Sources
+### Compare the following two sources? Which do you think is a more credible source?
+American Academy of Pediatrics [(Link)](https://www.aap.org/) vs. American College of Pediatricians [(Link)](https://acpeds.org/)
+Compare their names, the designs of their websites, the content of their websites.  
+Do a search of them. Compare the results of the searches. 
+Which method above gives you the most straightforward, comprehensive understanding of these sources?
 ## Multimodal Presentation Peer-Review Forms (Thursday)
 [Section 41](https://docs.google.com/document/d/1ghurnLxXnvUpRcPvUf820ChzGAc6dEuM0ibQKtM4Hqo/edit?usp=sharing)  
 [Section 42](https://docs.google.com/document/d/19zJxY2ttFheB7iqckbtGSpYYYGZ049tjPKXZy4KzKzg/edit?usp=sharing)
