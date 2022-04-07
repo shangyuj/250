@@ -1,20 +1,20 @@
 # English 250
 ## April 7: Evaluating Sources
-1. Compare the following two sources. Which do you think is a more reliable source?
+#### Compare the following two sources. Which do you think is a more reliable source?
 **American Academy of Pediatrics** [(Link)](https://www.aap.org/) vs. **American College of Pediatricians** [(Link)](https://acpeds.org/)  
 - Compare their names, logos, the design of their websites, the content on their websites.  
 - Do a search of them. Compare the results of the searches.  
 
 Which method above gives you the most straightforward, comprehensive understanding of these sources?
   
-2. In groups, find at least **two sources** that you could use for a paper on one of the following topics:  
+#### In groups, find at least **two sources** that you could use for a paper on one of the following topics:  
 - The effects of veganism on the environment  
 - Pros/cons of abolishing college tuition fees  
 
-Pick a topic.  
-2 minutes to find sources.  
-3 minutes to discuss and evaluate the sources as a group.  
-Report to the class your evaluation of the sources: How did we evaluate them? Are they reliable? Why?  
+1. Pick a topic.  
+2. Two minutes to find sources.  
+3. Three minutes to discuss and evaluate the sources as a group.  
+4. Report to the class your evaluation of the sources: How did we evaluate them? Are they reliable? Why?  
 
 ## Multimodal Presentation Peer-Review Forms (Thursday)
 [Section 41](https://docs.google.com/document/d/1ghurnLxXnvUpRcPvUf820ChzGAc6dEuM0ibQKtM4Hqo/edit?usp=sharing)  
