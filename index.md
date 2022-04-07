@@ -14,7 +14,7 @@ ________________________________________________________________________________
 1. Pick a topic.  
 2. Two minutes to find sources.  
 3. Three minutes to discuss and evaluate the sources as a group. (Don't forget to do external searches.)  
-4. Report to the class your evaluation of the sources: How did we evaluate them? Are they reliable? Why?  
+4. Report to the class your evaluation of the sources: How did you evaluate them? Are they reliable? Why?  
 
 ## Multimodal Presentation Peer-Review Forms (Thursday)
 [Section 41](https://docs.google.com/document/d/1ghurnLxXnvUpRcPvUf820ChzGAc6dEuM0ibQKtM4Hqo/edit?usp=sharing)  
