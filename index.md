@@ -17,7 +17,8 @@ Which method above gives you the most straightforward, comprehensive understandi
 3. Three minutes to discuss and evaluate the sources as a group. (Don't forget to do external searches.)  
 4. Report to the class your evaluation of the sources: How did you evaluate them? Are they reliable? Why?  
   
-### 3. Tracing claims and evaluating phrasing of claims
+### Tracing claims and evaluating phrasing of claims
+#### 3. Evaluate Author James Clear's phrasing of a claim
 A claim made in James Clear's blog: [Click here](https://jamesclear.com/habits#:~:text=According%20to%20researchers%20at%20Duke%20University%2C%20habits%20account%20for%20about%2040%20percent%20of%20our%20behaviors%20on%20any%20given%20day.%C2%A0) (highlighted sentence)  
 The original claim in the research paper: [Click here](https://drive.google.com/file/d/1gjJM0-7g2VHLGKrsNwGU53dFXbisX4J2/view?usp=sharing) (highlighted sentence)  
 ## Multimodal Presentation Peer-Review Forms (Thursday)
