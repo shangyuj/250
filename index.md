@@ -6,7 +6,7 @@
 - Do a search of them. Compare the results of the searches.  
 
 Which method above gives you the most straightforward, comprehensive understanding of these sources?
-  
+--------------------------------------------------------------------------------------------------------------
 #### In groups, find at least **two sources** that you could use for a paper on one of the following topics:  
 - The effects of veganism on the environment  
 - Pros/cons of abolishing college tuition fees  
