@@ -18,8 +18,8 @@ Which method above gives you the most straightforward, comprehensive understandi
 4. Report to the class your evaluation of the sources: How did you evaluate them? Are they reliable? Why?  
   
 ### Tracing claims and evaluating phrasing of claims
-The claim made in James Clear's blog: [Click here](https://jamesclear.com/habits#:~:text=According%20to%20researchers%20at%20Duke%20University%2C%20habits%20account%20for%20about%2040%20percent%20of%20our%20behaviors%20on%20any%20given%20day.%C2%A0)(Look for the highlighted sentence)  
-The original claim in the research paper: [Click here](https://drive.google.com/file/d/1gjJM0-7g2VHLGKrsNwGU53dFXbisX4J2/view?usp=sharing)(Look for the highlighted sentence)
+The claim made in James Clear's blog: [Click here](https://jamesclear.com/habits#:~:text=According%20to%20researchers%20at%20Duke%20University%2C%20habits%20account%20for%20about%2040%20percent%20of%20our%20behaviors%20on%20any%20given%20day.%C2%A0) (Look for the highlighted sentence)  
+The original claim in the research paper: [Click here](https://drive.google.com/file/d/1gjJM0-7g2VHLGKrsNwGU53dFXbisX4J2/view?usp=sharing) (Look for the highlighted sentence)
 ## Multimodal Presentation Peer-Review Forms (Thursday)
 [Section 41](https://docs.google.com/document/d/1ghurnLxXnvUpRcPvUf820ChzGAc6dEuM0ibQKtM4Hqo/edit?usp=sharing)  
 [Section 42](https://docs.google.com/document/d/19zJxY2ttFheB7iqckbtGSpYYYGZ049tjPKXZy4KzKzg/edit?usp=sharing)
