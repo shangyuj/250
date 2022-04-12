@@ -1,4 +1,7 @@
 # English 250
+## April 12
+Read this example argumentative essay: [Google Docs link](https://docs.google.com/document/d/1Nqqud-F-i1mbk3gjulVFwco2OT0H5MaWn3rXM-ThW5M/edit?usp=sharing)
+Use this form to annotate the essay and answer some questions: [Google Docs link](https://docs.google.com/document/d/1KKljA7aSyOp0bQvWfToOYFdPnOiw1NQQV3WCYfXrzEA/copy)
 ## April 7
 ### Evaluating Sources
 #### 1. Compare the following two sources. Which do you think is a more reliable source?
