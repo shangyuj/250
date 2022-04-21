@@ -1,4 +1,11 @@
 # English 250
+## April 19  
+### Peer Review Check-in  
+[Section 41](https://docs.google.com/spreadsheets/d/1qqzy6s7v3SNUvLx32aBYOHfzSIk1fkf8bT1mGMu2hAE/edit?usp=sharing)  
+[Section 42](https://docs.google.com/spreadsheets/d/1vuD4_cx91AwQELzDj2PQ3qwg4ls3PxvOMl56x9qmtAs/edit?usp=sharing)  
+### Presentation Sign-up  
+[Section 41](https://docs.google.com/spreadsheets/d/1N8Ex0MjoGetemo1kOXvyw_6WmmSWrsaGpDUsSvUCPk4/edit?usp=sharing)  
+[Section 42](https://docs.google.com/spreadsheets/d/1zPg1UMDox7m51PF2Fvx0ga-IhFo30Sb4sV7Ukzo5Mw4/edit?usp=sharing)  
 ## April 12
 ### Study an Example Essay
 Read this example argumentative essay: [Google Docs link](https://docs.google.com/document/d/1Nqqud-F-i1mbk3gjulVFwco2OT0H5MaWn3rXM-ThW5M/edit?usp=sharing)  
