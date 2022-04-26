@@ -1,7 +1,7 @@
 # English 250
 ## April 26
-### [Section 41 Presentations](https://docs.google.com/document/d/1rjs_QtzzJXBRUTCn-fDTVKf-kwWx4LWSRVl8PlzD7B0/edit?usp=sharing)
-### [Section 42 Presentations](https://docs.google.com/document/d/1ZN5um3QjshjsIPkPlvQu_8UlWo7Pp0JJTZSefrva2mc/edit?usp=sharing)
+[Section 41 Presentations](https://docs.google.com/document/d/1rjs_QtzzJXBRUTCn-fDTVKf-kwWx4LWSRVl8PlzD7B0/edit?usp=sharing)  
+[Section 42 Presentations](https://docs.google.com/document/d/1ZN5um3QjshjsIPkPlvQu_8UlWo7Pp0JJTZSefrva2mc/edit?usp=sharing)
 ## April 21  
 ### Peer Review Check-in  
 [Section 41](https://docs.google.com/spreadsheets/d/1qqzy6s7v3SNUvLx32aBYOHfzSIk1fkf8bT1mGMu2hAE/edit?usp=sharing)  
