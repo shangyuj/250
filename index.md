@@ -1,4 +1,7 @@
 # English 250
+## April 28
+[Section 41 Presentations](https://docs.google.com/document/d/1vn6zFvghhA4FORL-1p1NhhnHJukO4FlcGdEUa7MgUks/edit?usp=sharing)  
+[Section 42 Presentations](https://docs.google.com/document/d/1ZN5um3QjshjsIPkPlvQu_8UlWo7Pp0JJTZSefrva2mc/edit?usp=sharing)
 ## April 26
 [Section 41 Presentations](https://docs.google.com/document/d/1rjs_QtzzJXBRUTCn-fDTVKf-kwWx4LWSRVl8PlzD7B0/edit?usp=sharing)  
 [Section 42 Presentations](https://docs.google.com/document/d/1ZN5um3QjshjsIPkPlvQu_8UlWo7Pp0JJTZSefrva2mc/edit?usp=sharing)
