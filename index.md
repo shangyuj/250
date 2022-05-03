@@ -10,8 +10,8 @@
 4. [What are your next goal(s)? (Academic or non-academic)](https://www.menti.com/d9yjntjox3)  
   
 ### Freewriting
-1. Make a copy of [this Google Doc](https://docs.google.com/document/d/1GmvQxKY4CUQZm9X5DwsabKf5iPMk32cFXMrdkdXgZLk/copy) and do a final reflective freewrite. (5 min)  
-2. Talk to the peers around you about what you reflected on. (1 min per person)  
+1. Make a copy of [this Google Doc](https://docs.google.com/document/d/1GmvQxKY4CUQZm9X5DwsabKf5iPMk32cFXMrdkdXgZLk/copy) and do a final reflective freewrite. (7 min)  
+2. Talk to the peers around you about what you reflected on. (2 min per person)  
   
 ### ePortfolio Assignment Preview
 Take a look at [this portfolio guide/template](https://docs.google.com/document/d/1fOcsroVQErk4DXmoMGNxljLnfqkTsls2pTl9R8ksm_4/edit?usp=sharing) (2 min). Any questions?  
