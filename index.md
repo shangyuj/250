@@ -4,7 +4,7 @@
 [Section 41 Presentations](https://docs.google.com/document/d/1iymlsNJHYXs7q4YEgzpnn0b3e7rpZAmkWWvg_bqu__8/edit?usp=sharing)  
 [Section 42 Presentations](https://docs.google.com/document/d/1BzAXG_v3XXs-kjv8ePEsm2NChDQ66FjANtSHHA_p8zM/edit?usp=sharing)  
 ### Word Cloud Activity
-1. [Describe yourself in three to five adjectives.](https://www.menti.com/7f8ywp14dq)  
+1. [Warm-up: Describe yourself in three to five adjectives.](https://www.menti.com/7f8ywp14dq)  
 2. [In what aspect(s) of communication have you improved the most?](https://www.menti.com/hoeorgs54e)  
 3. [In what aspect(s) of non-academic life have you improved the most?](https://www.menti.com/ssm1ruh57p)  
 4. [What are your next goal(s)? (Academic or non-academic)](https://www.menti.com/d9yjntjox3)  
