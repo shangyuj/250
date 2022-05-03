@@ -18,7 +18,13 @@ Take a look at [this portfolio guide/template](https://docs.google.com/document/
 Check if you have any missed assignments?
 - Go to ENGL 250 on Canvas --> Click "Assignments"
 - Check for anything that's overdue
-- Check for anything that's graded 0/F/Incomplete
+- Check for anything that's graded *0*/*F*/*Incomplete*
+#### Upcoming due days
+- Complete a post-course self-assessment survey - May 9
+- Complete the ePortfolio (our last major assignment) - May 13
+- Complete course evaluation - May 8 (not required of course, but I would really appreciate it!)
+#### The absolute due day
+**May 16.** Yes, you can prioritize your other courses and come back to this one at the end. But make sure you complete everything by the end of May 16 because all professors are required to submit final grades on May 17.
 ### Section 41
 ### Section 42
 ## April 28
