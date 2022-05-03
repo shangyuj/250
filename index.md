@@ -20,8 +20,8 @@ Take a look at [this portfolio guide/template](https://docs.google.com/document/
   
 #### Check if you have any missed assignments:
 - Go to ENGL 250 on Canvas --> Click "Assignments"
-- Check for anything that's overdue
-- Check for anything that's graded 0/F/Incomplete
+- Check for anything that is overdue
+- Check for anything that is graded 0/F/Incomplete
   
 #### Upcoming due days:
 - Complete a post-course self-assessment survey - May 9
