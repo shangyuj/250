@@ -13,8 +13,8 @@
 2. Talk to the peers around you about what you reflected on. (1 min per person)  
 ### ePortfolio Assignment Preview
 Take a look at [this portfolio guide/template](https://docs.google.com/document/d/1fOcsroVQErk4DXmoMGNxljLnfqkTsls2pTl9R8ksm_4/edit?usp=sharing) (2 min). Any questions?  
-### Other Final course Logistics
-#### Check if you have any missed assignments.
+### Other Final Course Logistics
+#### Check if you have any missed assignments:
 - Go to ENGL 250 on Canvas --> Click "Assignments"
 - Check for anything that's overdue
 - Check for anything that's graded *0*/*F*/*Incomplete*
