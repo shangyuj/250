@@ -4,12 +4,21 @@
 [Section 41 Presentations](https://docs.google.com/document/d/1iymlsNJHYXs7q4YEgzpnn0b3e7rpZAmkWWvg_bqu__8/edit?usp=sharing)  
 [Section 42 Presentations](https://docs.google.com/document/d/1BzAXG_v3XXs-kjv8ePEsm2NChDQ66FjANtSHHA_p8zM/edit?usp=sharing)  
 ### Word Cloud Activity
-[Describe yourself in three to five adjectives.](https://www.menti.com/7f8ywp14dq)  
-[In what aspect(s) of communication have you improved the most?](https://www.menti.com/hoeorgs54e)  
-[In what aspect(s) of non-academic life have you improved the most?](https://www.menti.com/ssm1ruh57p)  
-[What are your next goal(s)? (Academic or non-academic)](https://www.menti.com/d9yjntjox3)  
+1. [Describe yourself in three to five adjectives.](https://www.menti.com/7f8ywp14dq)  
+2. [In what aspect(s) of communication have you improved the most?](https://www.menti.com/hoeorgs54e)  
+3. [In what aspect(s) of non-academic life have you improved the most?](https://www.menti.com/ssm1ruh57p)  
+4. [What are your next goal(s)? (Academic or non-academic)](https://www.menti.com/d9yjntjox3)  
 ### Freewriting
-Make a copy of [this Google Doc](https://docs.google.com/document/d/1GmvQxKY4CUQZm9X5DwsabKf5iPMk32cFXMrdkdXgZLk/copy)
+1. Make a copy of [this Google Doc](https://docs.google.com/document/d/1GmvQxKY4CUQZm9X5DwsabKf5iPMk32cFXMrdkdXgZLk/copy) and do a final reflective freewrite. (5 min)  
+2. Talk to the peers around you about what you reflected on. (1 min per person)  
+### ePortfolio assignment preview
+Take a look at [this portfolio guide/template](https://docs.google.com/document/d/1fOcsroVQErk4DXmoMGNxljLnfqkTsls2pTl9R8ksm_4/edit?usp=sharing) (2 min). Any questions?  
+### Other final course logistics
+#### Missed assignments?
+Check if you have any missed assignments?
+- Go to ENGL 250 on Canvas --> Click "Assignments"
+- Check for anything that's overdue
+- Check for anything that's graded 
 ### Section 41
 ### Section 42
 ## April 28
