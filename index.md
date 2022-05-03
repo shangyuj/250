@@ -14,19 +14,16 @@
 ### ePortfolio Assignment Preview
 Take a look at [this portfolio guide/template](https://docs.google.com/document/d/1fOcsroVQErk4DXmoMGNxljLnfqkTsls2pTl9R8ksm_4/edit?usp=sharing) (2 min). Any questions?  
 ### Other Final course Logistics
-#### Missed assignments?
-Check if you have any missed assignments?
+#### Check if you have any missed assignments.
 - Go to ENGL 250 on Canvas --> Click "Assignments"
 - Check for anything that's overdue
 - Check for anything that's graded *0*/*F*/*Incomplete*
-#### Upcoming due days
+#### Upcoming due days:
 - Complete a post-course self-assessment survey - May 9
 - Complete the ePortfolio (our last major assignment) - May 13
 - Complete course evaluation - May 8 (not required of course, but I would really appreciate it!)
-#### The absolute due day
-**May 16.** Yes, you can prioritize your other courses and come back to this one at the end. But make sure you complete everything by the end of May 16 because all professors are required to submit final grades on May 17.
-### Section 41
-### Section 42
+#### The absolute due day:
+**May 16.** Yes, you can prioritize your other courses and come back to this one at the end. But make sure you complete everything by the end of May 16 because all professors are required to submit final grades on May 17.  
 ## April 28
 [Section 41 Presentations](https://docs.google.com/document/d/1vn6zFvghhA4FORL-1p1NhhnHJukO4FlcGdEUa7MgUks/edit?usp=sharing)  
 [Section 42 Presentations](https://docs.google.com/document/d/16YDICHbfRx9z-L2kz8eYQOI9dMCY1RRA86ZEi9WBfxM/edit?usp=sharing)
