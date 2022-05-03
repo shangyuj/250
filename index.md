@@ -8,6 +8,7 @@
 2. [In what aspect(s) of communication have you improved the most?](https://www.menti.com/hoeorgs54e)  
 3. [In what aspect(s) of non-academic life have you improved the most?](https://www.menti.com/ssm1ruh57p)  
 4. [What are your next goal(s)? (Academic or non-academic)](https://www.menti.com/d9yjntjox3)  
+  
 ### Freewriting
 1. Make a copy of [this Google Doc](https://docs.google.com/document/d/1GmvQxKY4CUQZm9X5DwsabKf5iPMk32cFXMrdkdXgZLk/copy) and do a final reflective freewrite. (5 min)  
 2. Talk to the peers around you about what you reflected on. (1 min per person)  
